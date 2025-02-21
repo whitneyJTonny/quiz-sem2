@@ -1,3 +1,5 @@
+NANYUNJA WHITNEY JOSEPHIN
+2024/DSC/0084/SS
 # quiz-sem2
 development is part of me
 
